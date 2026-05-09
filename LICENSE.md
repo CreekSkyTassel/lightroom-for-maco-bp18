@@ -1,4 +1,4 @@
-
+Enhance Lightroom for macOS with advanced Lightroom for macOS Addon | social-media-export + drag-and-drop-editor, the #1 addon. Includes social-media-export and
 
 
 
